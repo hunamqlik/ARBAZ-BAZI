@@ -16,31 +16,31 @@
 ---
 
 ```
-DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
+DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇 The Zoraib
 ```
 ---
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=810&height=100&lines=+THANKS FOR CHOOSING+ALI-MD;MULTI+DEVICE+WHATSAPP+BOT;CREATED+BY+ALI+INXIDE" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=1BAFBAFF&center=true&width=810&height=100&lines=+THANKS FOR CHOOSING+ALI-MD;MULTI+DEVICE+WHATSAPP+BOT;CREATED+BY+Zoraib+INXIDE" alt="Typing SVG" /></a>
   </p>
   
 --- 
 
 <a><img src='https://cdn.ironman.my.id/i/2du3i5.jpg'/></a>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<[a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 ***
+[](https://chat.whatsapp.com/CaBYBjQlbP0IxwV5psEraR)](https://i.ibb.co/rKbQWVL3/lordali.jpg)
 
 
 
-
-### 1. 𐃁FORK THIS REPOSITORY𐃁
+### 1.FORK THIS REPOSITORY𐃁
 
 `FORK 🍴 AND STAR ⭐ IF YOU LIKE THIS BOT`
 
   <a href="https://github.com/itx-alii-raza/ALI-MD/fork"><img title="ALI-MD" src="https://img.shields.io/badge/FORK-ALI%20MD-BOTh?color=indigo&style=for-the-badge&logo=stackshare"></a>
   
-### 2. 𐃁GET SESSION ID𐃁 
+### 2. GET SESSION ID𐃁 
 
 `IF YOU DON'T HAVE YOUR SESSION_ID SO U CAN GET IT CLICK ON SESSION_ID BUTTON AND PASTE YOUR NUMBER With COUNTRY CODE EXAMPLE:92300xxxxxx THEN YOU CAN GET YOUR SESSION_ID ✠`
 
@@ -63,7 +63,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 ---
 
-### <h2 align="">𐃁ALI-MD DEPLOYMENT OPTIONS𐃁</h2>
+### <h2 align="">Zoraib DEPLOYMENT OPTIONS𐃁</h2>
 
 ---
 
@@ -167,10 +167,10 @@ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHAT
 <a><img src='[[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 
-## 🪀 WHATSAPP CHANNEL . 
+## 🪀 WHATSAPP CHANNEL Join Kro. 
 STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
 
-[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VaoRxGmJpe8lgCqT1T2h)
+[![WhatsApp Channel]([https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VaoRxGmJpe8lgCqT1T2h](https://chat.whatsapp.com/CaBYBjQlbP0IxwV5psEraR))
 
 ## 🪀 WHATSAPP GROUP
 JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
