@@ -148,7 +148,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 </details>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 
 ### <h4 align="">7. REPLIT</h4>
@@ -156,15 +156,15 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 
 <p align="">
 <a href='https://replit.com/~' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/-Replit Deploy-1976D2?style=for-the-badge&logo=replit&logoColor=white'/< width=150 height=28/p></a> </a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 
 ## 👑 PROJECT OWNER 
 HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHATSAPP ITS ME ALI࿐➺
 
 <p align="">
-<a href='https://wa.me/+923003588997?text=*ʜɪɪ+ᴀʟɪ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+ᴀʟɪ-ᴍᴅ+ʀᴇᴘᴏ!!*' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/ Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a href='https://wa.me/+923185051357?text=*ʜɪɪ+ᴀʟɪ+ɪ+ɴᴇᴇᴅ+ʜᴇʟᴘ!.+ɪ+ᴍᴇssᴀɢᴇᴅ+ʏᴏᴜ+ғʀᴏᴍ+ᴀʟɪ-ᴍᴅ+ʀᴇᴘᴏ!!*' target="_blank"><img alt='Replit' src='[https://img.shields.io/badge/](https://i.ibb.co/rKbQWVL3/lordali.jpg) Whatsapp -25D366?style=for-the-badge&logo=whatsapp&logoColor=white'/< width=150 height=28/p></a> </a>
+<a><img src='[[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 
 ## 🪀 WHATSAPP CHANNEL . 
@@ -212,6 +212,6 @@ JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER 
 THANK YOU TOHID, JAWAD, KERM & YOU SUPPORTERS
 ```
 -----
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 ------
