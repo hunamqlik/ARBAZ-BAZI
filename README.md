@@ -25,9 +25,9 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇 The Zoraib
   
 --- 
 
-<a><img src='https://cdn.ironman.my.id/i/2du3i5.jpg'/></a>
+<a><img src='[https://cdn.ironman.my.id/i/2du3i5.jpg](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
-<[a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<[a><img src='[https://i.imgur.com/LyHic3i.gif](https://i.ibb.co/rKbQWVL3/lordali.jpg)'/></a>
 
 ***
 [](https://chat.whatsapp.com/CaBYBjQlbP0IxwV5psEraR)](https://i.ibb.co/rKbQWVL3/lordali.jpg)
