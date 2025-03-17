@@ -168,14 +168,13 @@ HII DEARS FRIENDS IF YOU WANT ANY HELP SO YOU CAN CONTACT↘︎ WITH ME WIA WHAT
 
 
 ## 🪀 WHATSAPP CHANNEL Join Kro. 
-STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
-
-[![WhatsApp Channel]([https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029VaoRxGmJpe8lgCqT1T2h](https://chat.whatsapp.com/CaBYBjQlbP0IxwV5psEraR))
+STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER Zoraib
+[![WhatsApp Channel]https://whatsapp.com/channel/0029VasEIh0KWEKt9jJ1k32H
 
 ## 🪀 WHATSAPP GROUP
 JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
 
-[![WhatsApp Group](https://img.shields.io/badge/JOIN-WHATSAAP%20GROUP-25D366?style=for-the-badge&logo=whatsapp)](https://chat.whatsapp.com/Lx7sDv7jSy0CCTm5AliPdq)
+[![WhatsApp Group][(https://img.shields.io/badge/JOIN-WHATSAAP%20GROUP-25D366?style=for-the-badge&logo=whatsapp)](https://chat.whatsapp.com/Lx7sDv7jSy0CCTm5AliPdq)](https://chat.whatsapp.com/CaBYBjQlbP0IxwV5psEraR)
 
  
 
